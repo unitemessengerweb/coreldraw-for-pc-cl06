@@ -1,4 +1,4 @@
-# 
+# CorelDRAW for PC | CorelDRAW for Windows top Plugin: path-editing & gradient-meshes offers the most advanced CorelDRAW for PC | CorelDRAW for Windows plugin, with path-editing and
 
 
 
